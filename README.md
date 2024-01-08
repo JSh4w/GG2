@@ -1,1 +1,1 @@
-# GG2 sexy ct scan code
+# GG2 scanning code
